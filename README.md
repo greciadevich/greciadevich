@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Resilient, detail-oriented, and a perpetual learner. <br><br>🌏 I’ve built my career across banking, hospitality, and retail in Peru, Canada, and Spain.<br><br>💻In 2021, I launched an e-commerce store focused on children's clothing, inspired by my own journey as a mom navigating my child’s skin condition. That experience sparked my passion for tech and led me to pursue a Full Stack Bootcamp to deepen my skills. <br><br>💞I’m passionate about creating digital solutions that truly help people — with empathy, creativity, and a lifelong learning mindset.<br><br>✨ Always open to meaningful conversations and new connections. Feel free to reach out! 🖐🏼
+🌱 Resilient, detail-oriented, and a perpetual learner. <br><br>🌏 I’ve built my career across banking, hospitality, and retail in Peru, Canada, and Spain.<br><br>💻In 2022, I launched an e-commerce store focused on children's clothing, inspired by my own journey as a mom navigating my child’s skin condition. That experience sparked my passion for tech and led me to pursue a Full Stack Bootcamp to deepen my skills. <br><br>💞I’m passionate about creating digital solutions that truly help people — with empathy, creativity, and a lifelong learning mindset.<br><br>✨ Always open to meaningful conversations and new connections. Feel free to reach out! 🖐🏼
 
 
 ## 🌐 Socials:
